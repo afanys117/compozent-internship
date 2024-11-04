@@ -1,1 +1,1 @@
-# compozent-internship
+# compozent internship completion certificates
